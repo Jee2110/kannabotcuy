@@ -1,4 +1,4 @@
-// S C R I P T  O R I  B Y  @Salvasic.id🔭
+// S C R I P T  O R I  B Y  @Salvasicid🔭
 // M A D E  B Y  Letta - Sama 🐰  
 // Credits, jangan dihapus atau diubah!
 
